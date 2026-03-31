@@ -1,1 +1,1 @@
-# Yetkinlik-Y-netimi-Sertifika-Program-Web
+# Yetkinlik-Yonetimi-Sertifika-Programi-Web
