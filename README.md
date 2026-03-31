@@ -1,0 +1,1 @@
+# Yetkinlik-Y-netimi-Sertifika-Program-Web
